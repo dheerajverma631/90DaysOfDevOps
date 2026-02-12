@@ -13,8 +13,8 @@
 - 4hrs on Weekdays. 
 - 6-8hrs on Weekends.
 
-# Taking this challange will help me to be consistent in life and job also.
-# This will prepare me for the real job scenarios.
-# Consistency wiil lead to Discipline.
-# Helping in critical thinking.
+Taking this challange will help me to be consistent in life and job also.
+This will prepare me for the real job scenarios.
+Consistency wiil lead to Discipline.
+Helping in critical thinking.
 
